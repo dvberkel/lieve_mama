@@ -22,3 +22,14 @@ pas echt van kinderen. Nichtjes, neefjes en in het bijzonder haar kleinkinderen.
 Vaak was ze de grootste deugniet aan tafel. Ik kan mij nog een avond herinneren dat wij met ze alle om tafel zaten. Sophie
 had een liedje.
 Ze sloeg om het hardst op de tafel om te genieten van de lach van de kinderen.
+
+Ik ben verdriet om wat Renee allemaal moet missen. Ik denk dat ik weet wat ze nog graag zou willen zeggen als
+ze geleefd had.
+
+telg: Kom maar bij oma op schoot.
+Sophie: Met de vingertjes, met de vingertjes
+Marlies: Dank je wel
+Joost: Ik kijk ook naar jou.
+Lars: Je hoeft niet de hele wereld op je schouders te dragen.
+Femke: Ik ben trots op je hoe je de jongens opvoed.
+Ria: Sorry dat ik zo koppig was, het is goed zo.
