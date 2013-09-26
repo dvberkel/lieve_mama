@@ -2,10 +2,16 @@ Woorden
 =======
 
 Renee zou het verschrikkelijk vervelend hebben gevonden dat jullie al
-die moeite hebben moeten nemen om speciaal voor haar hier te
-te zijn. Laten we daarom hier bijeen zijn voor ons zelf en voor elkaar,
-om stil te staan bij wie Renee was en hoe de toekomst zonder haar
-eruit ziet.
+die moeite hebben moeten nemen om speciaal voor haar hier te te
+zijn. Ze wilde zich namelijk niet opdringen of beslag leggen op je
+tijd.
+
+Zo sprak ik haar afgelopen zaterdag, een dag voor ze stierf, in het
+ziekenhuis. Ze drukte me op het hart dat het niet nodig was om langs
+te komen. Er was immers niets aan de hand.
+
+Laten we daarom hier bijeen zijn voor ons zelf en voor elkaar, om stil
+te staan bij wie Renee was en hoe de toekomst zonder haar eruit ziet.
 
 Vergis je niet, ze zou erg van vandaag genoten hebben. Ze vond het
 heerlijk om in gezelschap van vrienden en familie te verkeren. Ik neem
@@ -20,22 +26,19 @@ te verzachten.
 Iedereen merkte dat. Het kwam vaak voor dat een onbekende haar
 aangesprak om een babbeltje te maken. Zomaar uit het niets. Zo heb ik
 een keer met haar gelunched toen een wat oudere dame kwam vertellen
-dat het eten hier zo lekker was en dat ze erg erg graag kwam.
+dat het eten hier zo lekker was en dat ze er erg graag kwam.
 
 Renee begreep nooit waardoor mensen haar zo graag aanspraken. Ik denk
 dat iedereen hier wel een gevoel heeft waarom dat is.
-
-Ik sprak haar afgelopen zaterdag, een dag voor ze stierf, in het
-ziekenhuis. Ze drukte me op het hart dat het niet nodig was om langs
-te komen, er was immers niets aan de hand.
-
-
-Renee was ontzettend eigenwijs.
 
 Renee kon ontzettend genieten van het gezelschap van andere. Ze
 kaartte, sprak of at graag met vriendinnen. Maar ze genoot pas echt
 van kinderen. Nichtjes, neefjes en in het bijzonder haar
 kleinkinderen.
+
+
+Renee was ontzettend eigenwijs.
+
 
 Vaak was ze de grootste deugniet aan tafel. Ik kan mij nog een avond
 herinneren dat wij met ze alle om tafel zaten. Sophie had een liedje.
