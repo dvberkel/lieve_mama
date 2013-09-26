@@ -24,7 +24,7 @@ peilen hoe jij je voelde en de woorden vinden om dat te versterken of
 te verzachten.
 
 Iedereen merkte dat. Het kwam vaak voor dat een onbekende haar
-aangesprak om een babbeltje te maken. Zomaar uit het niets. Zo heb ik
+aansprak om een babbeltje te maken. Zomaar uit het niets. Zo heb ik
 een keer met haar gelunched toen een wat oudere dame kwam vertellen
 dat het eten hier zo lekker was en dat ze er erg graag kwam.
 
@@ -35,7 +35,7 @@ Renee kon ontzettend genieten van het gezelschap van andere. Maar ze
 genoot pas echt van kinderen. Buurtkinderen, nichtjes, neefjes en in
 het bijzonder haar kleinkinderen. Kinderen herkende in haar een
 kameraadje waar ze fijn mee konden spelen. Iemand die altijd lekker gek
-doet. Eigenlijk een groot kind.
+deed. Eigenlijk een groot kind.
 
 Vaak was ze zelf de grootste deugniet. Niet lang geleden had Sophie
 een nieuw liedje geleerd. Toen we op een avond met de hele familie bij
@@ -43,7 +43,33 @@ oma & oma op bezoek waren zongen wij het liedje. Renee had de lachers
 van de kinderen op haar hand door het liedje steeds te zingen en
 iedere keer harder en harder op de tafel te slaan.
 
-Renee was ontzettend eigenwijs.
+Renee was ontzettend eigenwijs, koppig en trots. Ze werd niet graag
+verteld wat ze moest doen. Als je het toch probeerde dan gooide ze met
+gemak de kont tegen de krib.
+
+Het was die koppigheid en trots dat maakte dat Renee haar toenemende
+gebreken verbloemde. Ze ging de afgelopen jaren steeds moeilijker
+lopen. Ze maskeerde dat door de "interessante" omgeving eens goed te
+bekijken.
+
+Die koppigheid en angst, maakte dat ze maar moeilijk naar het
+ziekenhuis wilde. Begrijpelijk, ze had haar eigen moeder immers in
+het ziekenhuis zien aftakelen. Dat wilde ze zelf absoluut niet.
+
+Als twee davids tegen Goliath heeft Ria met de hulp van Tineke Renee
+eerder dit jaar doodziek toch nog naar het ziekenhuis gekregen. Aldaar
+werd ze een maagbloeding geconstateerd. Met de nodige inspanningen
+hebben de doktoren haar kunnen oplappen.
+
+Maar nadat ze de vorige keer in het ziekenhuis ternauwernood aan de dood was
+ontsnapt, werd ze nooit meer de oude. Het verbloemen kostte steeds
+meer moeite, ze was constant moe, ze was op.
+
+Ze had dan ook deze keer aangegeven niet gereanimeerd te willen
+worden. Iets waar de artsen en verpleegkundigen van op de hoogte waren
+toen ze afgelopen zondag niet aanspreekbaar werd aangetroffen. Wij
+snelde ons naar het ziekenhuis en hebben kunnen zien hoe ze haar
+laatste adem uitblies, omringt door de mensen waarvan ze hield.
 
 
 Ik ben verdriet om wat Renee allemaal moet missen. Ik denk dat ik weet
