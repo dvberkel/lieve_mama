@@ -71,14 +71,19 @@ toen ze afgelopen zondag niet aanspreekbaar werd aangetroffen. Wij
 snelde ons naar het ziekenhuis en hebben kunnen zien hoe ze haar
 laatste adem uitblies, omringt door de mensen waarvan ze hield.
 
+Renee had graag dat vandaag een vrolijke dag zou zijn. Getuigen ook de
+muziek die we gehoord hebben toen we vandaag binnen kwamen. Ik ben dan
+ook niet verdrietig vandaag afscheid nemen van Renee. Ze heeft een
+mooi en vol leven geleid.
 
-Ik ben verdriet om wat Renee allemaal moet missen. Ik denk dat ik weet
-wat ze nog graag zou willen zeggen als ze geleefd had.
+Nee, Ik ben verdriet om wat Renee allemaal moet missen. Om wat ze niet
+meer mee gaat maken. Om wat ze niet meer kan zeggen. Maar ik denk dat
+ik weet wat ze nog graag zou willen zeggen als ze geleefd had.
 
-telg: Kom maar bij oma op schoot.
-Sophie: Met de vingertjes, met de vingertjes
-Marlies: Dank je wel
-Joost: Ik kijk ook naar jou.
+Ongeboren kind: Kom maar bij oma op schoot.
+Sophie: Nog een keer dan.
+Marlies: Dank je wel.
+Joost: Jij mag er ook zijn.
 Lars: Je hoeft niet de hele wereld op je schouders te dragen.
-Femke: Ik ben trots op je hoe je de jongens opvoed.
+Femke: Ik ben trots op je.
 Ria: Sorry dat ik zo koppig was, het is goed zo.
