@@ -20,7 +20,7 @@ haar genoten.
 
 Renee had immers de gave om mensen op hun gemak te stellen en in haar
 armen te sluiten. Ze kon vaak met een griezellige nauwkeurigheid
-peilen hoe je je voelde en de woorden vinden om dat te versterken of
+peilen hoe jij je voelde en de woorden vinden om dat te versterken of
 te verzachten.
 
 Iedereen merkte dat. Het kwam vaak voor dat een onbekende haar
@@ -31,19 +31,19 @@ dat het eten hier zo lekker was en dat ze er erg graag kwam.
 Renee begreep nooit waardoor mensen haar zo graag aanspraken. Ik denk
 dat iedereen hier wel een gevoel heeft waarom dat is.
 
-Renee kon ontzettend genieten van het gezelschap van andere. Ze
-kaartte, sprak of at graag met vriendinnen. Maar ze genoot pas echt
-van kinderen. Nichtjes, neefjes en in het bijzonder haar
-kleinkinderen.
+Renee kon ontzettend genieten van het gezelschap van andere. Maar ze
+genoot pas echt van kinderen. Nichtjes, neefjes en in het bijzonder
+haar kleinkinderen. Kinderen herkende in haar een kameraadje waar ze
+fijn mee konden spelen en die altijd lekker gek doet.
 
+Vaak was ze zelf de grootste deugniet. Niet lang geleden had Sophie
+een nieuw liedje geleerd. Toen we op een avond met de hele familie bij
+oma & oma op bezoek waren zongen wij het liedje. Renee had de lachers
+van de kinderen op haar hand door het liedje steeds te zingen en
+iedere keer harder en harder op de tafel te slaan.
 
 Renee was ontzettend eigenwijs.
 
-
-Vaak was ze de grootste deugniet aan tafel. Ik kan mij nog een avond
-herinneren dat wij met ze alle om tafel zaten. Sophie had een liedje.
-Ze sloeg om het hardst op de tafel om te genieten van de lach van de
-kinderen.
 
 Ik ben verdriet om wat Renee allemaal moet missen. Ik denk dat ik weet
 wat ze nog graag zou willen zeggen als ze geleefd had.
