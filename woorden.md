@@ -80,10 +80,10 @@ Nee, Ik ben verdriet om wat Renee allemaal moet missen. Om wat ze niet
 meer mee gaat maken. Om wat ze niet meer kan zeggen. Maar ik denk dat
 ik weet wat ze nog graag zou willen zeggen als ze nog geleefd had.
 
-Ongeboren kind: Kom maar bij oma op schoot.
-Sophie: Nog een keer dan.
-Marlies: Dank je wel.
-Joost: Jij mag er ook zijn.
-Lars: Je hoeft niet de hele wereld op je schouders te dragen.
-Femke: Ik ben trots op je.
-Ria: Sorry dat ik zo koppig was, het is goed zo.
+* **Ongeboren kind**: Kom maar bij oma op schoot.
+* **Sophie**: Nog een keer dan.
+* **Marlies**: Dank je wel.
+* **Joost**: Jij mag er ook zijn.
+* **Lars**: Je hoeft niet de hele wereld op je schouders te dragen.
+* **Femke**: Ik ben trots op je.
+* **Ria**: Sorry dat ik zo koppig was, het is goed zo.
