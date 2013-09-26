@@ -32,9 +32,10 @@ Renee begreep nooit waardoor mensen haar zo graag aanspraken. Ik denk
 dat iedereen hier wel een gevoel heeft waarom dat is.
 
 Renee kon ontzettend genieten van het gezelschap van andere. Maar ze
-genoot pas echt van kinderen. Nichtjes, neefjes en in het bijzonder
-haar kleinkinderen. Kinderen herkende in haar een kameraadje waar ze
-fijn mee konden spelen en die altijd lekker gek doet.
+genoot pas echt van kinderen. Buurtkinderen, nichtjes, neefjes en in
+het bijzonder haar kleinkinderen. Kinderen herkende in haar een
+kameraadje waar ze fijn mee konden spelen. Iemand die altijd lekker gek
+doet. Eigenlijk een groot kind.
 
 Vaak was ze zelf de grootste deugniet. Niet lang geleden had Sophie
 een nieuw liedje geleerd. Toen we op een avond met de hele familie bij
