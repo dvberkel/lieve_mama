@@ -61,7 +61,7 @@ eerder dit jaar doodziek toch nog naar het ziekenhuis gekregen. Aldaar
 werd ze een maagbloeding geconstateerd. Met de nodige inspanningen
 hebben de doktoren haar kunnen oplappen.
 
-Maar nadat ze de vorige keer in het ziekenhuis ternauwernood aan de dood was
+Maar nadat ze in het ziekenhuis ternauwernood aan de dood was
 ontsnapt, werd ze nooit meer de oude. Het verbloemen kostte steeds
 meer moeite, ze was constant moe, ze was op.
 
@@ -72,13 +72,13 @@ snelde ons naar het ziekenhuis en hebben kunnen zien hoe ze haar
 laatste adem uitblies, omringt door de mensen waarvan ze hield.
 
 Renee had graag dat vandaag een vrolijke dag zou zijn. Getuigen ook de
-muziek die we gehoord hebben toen we vandaag binnen kwamen. Ik ben dan
-ook niet verdrietig vandaag afscheid nemen van Renee. Ze heeft een
+muziek die we hebben gehoord toen we vandaag binnen kwamen. Ik ben dan
+ook niet verdrietig vandaag afscheid te nemen van Renee. Ze heeft een
 mooi en vol leven geleid.
 
 Nee, Ik ben verdriet om wat Renee allemaal moet missen. Om wat ze niet
 meer mee gaat maken. Om wat ze niet meer kan zeggen. Maar ik denk dat
-ik weet wat ze nog graag zou willen zeggen als ze geleefd had.
+ik weet wat ze nog graag zou willen zeggen als ze nog geleefd had.
 
 Ongeboren kind: Kom maar bij oma op schoot.
 Sophie: Nog een keer dan.
