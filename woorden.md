@@ -1,6 +1,3 @@
-Woorden
-=======
-
 Renee zou het verschrikkelijk vervelend hebben gevonden dat jullie al
 die moeite hebben moeten nemen om speciaal voor haar hier te te
 zijn. Ze wilde zich namelijk niet opdringen of beslag leggen op je
