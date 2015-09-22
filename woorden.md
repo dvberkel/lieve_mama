@@ -55,7 +55,7 @@ het ziekenhuis zien aftakelen. Dat wilde ze zelf absoluut niet.
 
 Als twee davids tegen Goliath heeft Ria met de hulp van Tineke Renee
 eerder dit jaar doodziek toch nog naar het ziekenhuis gekregen. Aldaar
-werd ze een maagbloeding geconstateerd. Met de nodige inspanningen
+werd een maagbloeding geconstateerd. Met de nodige inspanningen
 hebben de doktoren haar kunnen oplappen.
 
 Maar nadat ze in het ziekenhuis ternauwernood aan de dood was
