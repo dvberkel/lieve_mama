@@ -32,7 +32,7 @@ Renee kon ontzettend genieten van het gezelschap van andere. Maar ze
 genoot pas echt van kinderen. Buurtkinderen, nichtjes, neefjes en in
 het bijzonder haar kleinkinderen. Kinderen herkende in haar een
 kameraadje waar ze fijn mee konden spelen. Iemand die altijd lekker gek
-deed. Eigenlijk een groot kind.
+deed. Eigenlijk zelf een groot kind.
 
 Vaak was ze zelf de grootste deugniet. Niet lang geleden had Sophie
 een nieuw liedje geleerd. Toen we op een avond met de hele familie bij
